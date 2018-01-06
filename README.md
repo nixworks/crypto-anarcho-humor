@@ -1,2 +1,1 @@
-# crypto-anarcho-humor
-крипто анархо юмор
+# crypto anarcho humor | крипто анархо юмор
